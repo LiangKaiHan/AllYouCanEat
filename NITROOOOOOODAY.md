@@ -56,6 +56,10 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 ---
 
+https://youtu.be/Z5VnxM-W9-0?si=atuTNfnvpj_ZwmVm
+
+去聽完www之後在附近吃了春日庭，油麵超好吃
+
 https://youtu.be/bI6-z5Xwxpk?si=9NadeMamL3Ayam-N
 
 我找到很久以前有人po過的了XD！（
@@ -108,3 +112,7 @@ https://www.youtube.com/watch?v=SVNfEtu9uhA
 https://www.youtube.com/watch?v=-vc7QHv9U_E
 
 我找到這個，很好笑，以前看的，簡單魔改金盞花
+
+還有懷念一下過往
+
+https://youtu.be/FYd5RXp9jqs?si=o8A6n9OmP9lqDp25
