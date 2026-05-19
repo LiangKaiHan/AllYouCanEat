@@ -201,13 +201,19 @@ It was the second half, but I was starving so I left early. Down in the basement
 
 在某間唱片行還被亮出來的時候
 
+When it was still proudly displayed in some record store.
+
 ![NITROOOO](IMG_8679.JPG)
 
 嶄新的檸檬
 
+Brand new lemon.
+
 ![NITROOOO](IMG_8680.JPG)
 
-我中間先逃走了，想找東西吃，先看到沒有人的一蘭（笑），走了幾步之後看到春日庭。一直想吃看看日本的油そば。最特別的是，吃完之後可以加點白飯和醬汁。我本來只有點麵，看到隔壁課人家點看起來超好吃，就請店員幫我加購。米飯裹上吃剩的湯汁加上生蛋和特製醬汁。有夠好吃rrrrrrrrrrrrrrrrrrrrrrrrr
+我中間先逃走了，想找東西吃，先看到沒有人的一蘭（笑），走了幾步之後看到春日庭。一直想吃看看日本的油そば。最特別的是，吃完之後可以加點白飯和醬汁。我本來只有點麵，看到隔壁客人家點看起來超好吃，就請店員幫我加購。米飯裹上吃剩的湯汁加上生蛋和特製醬汁。有夠好吃rrrrrrrrrrrrrrrrrrrrrrrrr
+
+I bailed midway because I was hungry. First I saw an empty Ichiran (WWW), walked a few more steps and found Kasuga-tei. I’d always wanted to try Japanese abura soba 油そば. The best part is you can add rice and sauce afterward. I originally only ordered noodles, but the table next to me looked amazing, so I asked the staff to add it for me. Rice mixed with the leftover broth, a raw egg, and their special sauce. So fucking good rrrrrrrrrrrrrrrrrrrrrrrrr.
 
 ![NITROOOO](IMG_8681.JPG)
 
@@ -215,13 +221,23 @@ https://youtu.be/Z5VnxM-W9-0?si=atuTNfnvpj_ZwmVm
 
 別人的影片記錄
 
+Someone else’s recording.
+
 ### as i remembered
 
 我記得我找過NITRODAY大概最早期的影片們，他們一開始是高中（記得是橫濱的）組成，然後參加表演得名
 
+I remember looking up NITRODAY’s earliest videos. They started as a high school band (Yokohama, I think) and won some performance contest.
+
 NITRO記錄
+
+recording of NITRODAY 
+
 ニトロデイ
 關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
+
+Keyword tip: “ニトロデイ” searches way better.  
+There are also some covers by other bands from those hot music clubs (wow, they’ve actually become a band that other people cover now).
 
 想找他們早期影片，我有看過
 
@@ -246,6 +262,8 @@ https://youtu.be/4lxHW1HGZD0?si=HdIKzqdePkvbZcGy
 ---
 
 阿她另一個團是cruyff
+
+Oh, her other band is cruyff.
 
 ---
 
