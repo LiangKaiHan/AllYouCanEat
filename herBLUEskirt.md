@@ -1,3 +1,8 @@
+ART-SCHOOL
+
+スカートの色は青
+
+
 ![herBLUEsky](ComfyUI_01025_.png)
 
 nlxl
