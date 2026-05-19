@@ -10,6 +10,10 @@ steps28, cfg2.5,2sa, beta57,
 
 每一張我都聽過但我只有按這首讚
 
+Auntie asked me to recommend an ART-SCHOOL song
+
+I took a look around on Spotify. I’ve actually listened to every album, but the only one I hearted is this track.
+
 ——
 
 （聽說現在ai都用破折號我也試試看
@@ -37,14 +41,6 @@ steps28, cfg2.5,2sa, beta57,
 ART-SCHOOL
 
 スカートの色は青
-
-——我是分隔線——
-
-Auntie asked me to recommend an ART-SCHOOL song
-
-I took a look around on Spotify. I’ve actually listened to every album, but the only one I hearted is this track.
-
-——
 
 （I heard AIs these days love using em dashes, so let me try too）
 
