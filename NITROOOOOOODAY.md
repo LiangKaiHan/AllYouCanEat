@@ -73,16 +73,25 @@ Later NITRODAY went on hiatus and everyone went their own way. yagihiromi starte
 ***
 
 https://open.spotify.com/artist/5j34O3Q91uDakTczKEBneX?si
+
 後來也有了自己的Spotify
+
+Later she got her own Spotify page too.
+
 
 ***
 
-萬物的起源是在台大後門118等飯糰的時候聽到這首歌。
 https://youtu.be/DB0kKn-QYYA?si
+
+萬物的起源是在台大後門118等飯糰的時候聽到這首歌。
+
+The origin universe was waiting for an onigiri at 118 behind NTU when I first heard this song.
 
 ***
 
 我當年玩交友軟體，一定會和別人推薦NITRODAY ，作為友情辨認器。如果2020年代妳曾經在柴犬上被一個男生推過NITRODAY的，那大概就是我。
+
+Back when I was on dating apps, I would always recommend NITRODAY to people as a friendship litmus test. If in the 2020s some girl on Tinder got spammed with NITRODAY by a random guy, that was probably me.
 
 ***
 
@@ -91,16 +100,23 @@ https://open.spotify.com/track/4WGSsBDLYE25tEoa3RrZRi?si
 ***
 
 https://youtu.be/cMLjenbdwKg?si
+
 這首歌，很長，一定要看完。
+
+This song, is, long. You have to watch the whole thing.
 
 ***
 
 這首真的讓我覺得：主唱好像是一種樂器，通常操縱的方法是：踩著他的腳；揍他肝臟；捏他耳朵。就可以控制各種「rrrrrrrrrrrr」那樣。
 
+This track really made me feel like, the singer is basically an **instrument**. The usual ways of operating: step on his foot, punch him in the liver, pinch his ears—and then could control all kinds of “rrrrrrrrrrrr” sounds.
+
 ***
 
 https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 分享我的抗厭世上班播放清單：只有兩首歌幹笑死
+My anti-existential work playlist: just two songs.
+Fuck, I’m dying.
 
 ***
 
