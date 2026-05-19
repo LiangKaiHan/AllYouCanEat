@@ -54,3 +54,43 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 這首歌的檸檬，是梶井基次郎的檸檬。
 
+---
+
+NITRO記錄
+ニトロデイ
+
+as i remember
+
+我記得我找過NITRODAY大概最早期的影片們，他們一開始是高中（記得是橫濱的）組成，然後參加表演得名
+
+https://youtu.be/XP6HsZQ9d_s?si=wKIbuvoi357vKrWo
+
+https://youtu.be/_3rVMOuGGno?si=Tb2g-FVeO3MbX__8
+這一部好像不是原檔
+
+關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
+
+https://youtu.be/4lxHW1HGZD0?si=HdIKzqdePkvbZcGy
+受訪的影片
+
+
+https://youtu.be/5--OKSWe-YY?si=1HWgzWYfwm7pZ-W5
+https://www.youtube.com/watch?v=iG0-saJV5AI
+https://www.youtube.com/watch?v=tvZOGnJHbDE
+
+側拍
+
+---
+
+https://youtu.be/Tx9Z9-Mr_0E?si=B_Zro84mWQInouOe
+yagihiromi個人專輯的宣傳
+
+阿她另一個團是cruyff
+
+
+---
+
+
+同場加映，在WWW的共演是
+
+https://www.youtube.com/watch?v=Gy63a8APe64
