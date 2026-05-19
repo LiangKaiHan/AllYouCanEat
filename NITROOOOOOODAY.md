@@ -58,6 +58,8 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 ### as i remembered
 
+我記得我找過NITRODAY大概最早期的影片們，他們一開始是高中（記得是橫濱的）組成，然後參加表演得名
+
 NITRO記錄
 ニトロデイ
 關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
@@ -90,7 +92,7 @@ https://youtu.be/bI6-z5Xwxpk?si=9NadeMamL3Ayam-N
 這張後來沒有放在網路上，是當年她自己的作品之一
 
 
-我記得我找過NITRODAY大概最早期的影片們，他們一開始是高中（記得是橫濱的）組成，然後參加表演得名
+
 
 
 
