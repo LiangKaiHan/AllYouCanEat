@@ -102,7 +102,7 @@ https://www.youtube.com/watch?v=Gy63a8APe64
 
 我中間先逃走了，想找東西吃，先看到沒有人的一蘭（笑），走了幾步之後看到春日庭。一直想吃看看日本的油そば。最特別的是，吃完之後可以加點白飯和醬汁。我本來只有點麵，看到隔壁課人家點看起來超好吃，就請店員幫我加購。米飯裹上吃剩的湯汁加上生蛋和特製醬汁。有夠好吃rrrrrrrrrrrrrrrrrrrrrrrrr
 
-
+![NITROOOO](IMG_8681.jpg)
 
 
 ### as i remembered
