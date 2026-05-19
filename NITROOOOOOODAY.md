@@ -1,3 +1,12 @@
+這篇文章記錄art-school要來台灣，彈吉他的yagihiromi的一些事情，以及NITRODAY，beatcover!!，以及春日庭的油そば。
+
+本文跟Gork協作翻譯。
+
+
+
+
+![NITROOOO](IMG_8674.JPG)
+
 art-school要來台灣
 
 重點是yagihiromi
@@ -83,23 +92,23 @@ https://www.youtube.com/watch?v=tvZOGnJHbDE
 
 ---
 
-![NITROOOO](IMG_8647.jpg)
+![NITROOOO](IMG_8674.JPG)
 
 2019年在東京演唱時，yagihiromi的吉他XD
 
 這場我沒有拍她，因為我都用看的XDDDDD
 
-![NITROOOO](IMG_8645.jpg)
+![NITROOOO](IMG_8675.JPG)
 
 入場前的排隊：
 
 像小山城一樣的shibuya WWW前面，排隊排一排，他們從我旁邊走上去，yagihiromi穿著棕褐色的襯衫外套
 
-![NITROOOO](IMG_8646.jpg)
+![NITROOOO](IMG_8676.JPG)
 
 開場前
 
-![NITROOOO](IMG_8677.jpg)
+![NITROOOO](IMG_8677.JPG)
 
 共演是beatcover!!
 
@@ -109,19 +118,19 @@ https://www.youtube.com/watch?v=Gy63a8APe64
 
 是下半場，但因為我太餓了就離場，地下室的www樓梯下方有擺攤賣周邊，NITRODAY攤位的工作人員不在，隔壁的人跟我說他馬上會回來。我只買了兩張專輯。
 
-![NITROOOO](IMG_8678.jpg)
+![NITROOOO](IMG_8678.JPG)
 
 在某間唱片行還被亮出來的時候
 
-![NITROOOO](IMG_8679.jpg)
+![NITROOOO](IMG_8679.JPG)
 
 嶄新的檸檬
 
-![NITROOOO](IMG_8680.jpg)
+![NITROOOO](IMG_8680.JPG)
 
 我中間先逃走了，想找東西吃，先看到沒有人的一蘭（笑），走了幾步之後看到春日庭。一直想吃看看日本的油そば。最特別的是，吃完之後可以加點白飯和醬汁。我本來只有點麵，看到隔壁課人家點看起來超好吃，就請店員幫我加購。米飯裹上吃剩的湯汁加上生蛋和特製醬汁。有夠好吃rrrrrrrrrrrrrrrrrrrrrrrrr
 
-![NITROOOO](IMG_8681.jpg)
+![NITROOOO](IMG_8681.JPG)
 
 https://youtu.be/Z5VnxM-W9-0?si=atuTNfnvpj_ZwmVm
 
