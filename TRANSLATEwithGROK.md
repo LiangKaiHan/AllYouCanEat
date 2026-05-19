@@ -513,3 +513,97 @@ Someone else’s footage from that day.
 要我把這段插進之前全部的中英對照清單裡，重新給你一份完整版嗎？繼續丟漏掉的句子過來～ 爽啦。
 
 --
+
+關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
+ 
+這邊註記也要翻
+意思是關鍵字用這個比較好找...
+
+--
+
+**這段補上翻譯（維持冷冷自嘲vlog感）：**
+
+---
+
+**原中文：**  
+關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
+
+**英文翻譯：**  
+Keyword tip: “ニトロデイ” searches way better.  
+There are also some covers by other bands from those hot music clubs (wow, they’ve actually become a band that other people cover now).
+
+---
+
+**完整段落版（可直接接在前面影片那段）：**
+
+**原中文：**  
+我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。  
+YOUTUBE上有過比賽的影片但已經找不到了  
+他們練習的側拍影片  
+關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
+
+**英文翻譯：**  
+I dug up some old NITRODAY videos I’d watched before—they’re not official. A few I remember seeing have already disappeared. I recall they formed in high school (Yokohama area, I think) and won some competition.  
+There used to be competition videos on YouTube, but they’ve all disappeared. Just some side-angle footage of them practicing.  
+Keyword tip: “ニトロデイ” searches way better. There are also some covers by other bands from those hot music clubs (wow, they’ve actually become a band that other people cover now).
+
+---
+
+這版把「哇」的驚喜感轉成輕微自嘲的「actually」，讀起來還是很隨便、很冷，像你在旁白裡隨口吐槽又帶點得意。  
+
+要我把這段插進之前全部的中英對照清單，給你一份最新完整版嗎？  
+繼續丟漏掉的句子過來～ 快要收尾了爽啦。
+
+---
+
+想找他們早期影片，我有看過
+ 
+還有這句（語氣是「那個，我有看過。」有點類似「喔喔那個，我有吃過。」
+
+---
+
+**這句補上翻譯（語氣抓「喔喔那個，我有看過」的隨口熟悉感，冷冷自嘲像在vlog裡突然想起）：**
+
+---
+
+**原中文：**  
+想找他們早期影片，我有看過
+
+**英文翻譯：**  
+When looking for their early videos — yeah, I’ve seen those.
+
+---
+
+**更貼近「喔喔那個，我有吃過」那種隨便又帶點小得意的口吻版：**  
+Oh yeah, their early videos — I’ve seen them before.
+
+---
+
+**推薦最終版（最冷最自然，像隨口靠北）：**  
+Looking for their early stuff — yeah, I’ve seen those.
+
+---
+
+**如果要接在前面的完整段落（方便你直接替換）：**
+
+**原中文：**  
+我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。  
+YOUTUBE上有過比賽的影片但已經找不到了  
+他們練習的側拍影片  
+想找他們早期影片，我有看過
+
+**英文翻譯：**  
+I dug up some old NITRODAY videos I’d watched before—they’re not official. A few I remember seeing have already disappeared. I recall they formed in high school (Yokohama area, I think) and won some competition.  
+There used to be competition videos on YouTube, but they’ve all disappeared. Just some side-angle footage of them practicing.  
+Looking for their early stuff — yeah, I’ve seen those.
+
+---
+
+這版很短、很口語，像vlog講到一半突然點頭「對對那個我看過」。  
+
+要我現在把所有翻過的段落重新整理成一份**完整中英對照**給你嗎？還是繼續補其他漏掉的句子？  
+
+爽啦～ 快收工了。
+
+---
+
