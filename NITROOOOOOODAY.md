@@ -56,30 +56,42 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 ---
 
+### as i remembered
+
+NITRO記錄
+ニトロデイ
+關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
+
+想找他們早期影片，我有看過
+
+https://youtu.be/x8UyX264AJ0?si=5f4_IaJu4PPzySKl
+ニトロデイ LIVE at 横浜 BB STREET
+環七フィーバーズNEO
+
+
+https://youtu.be/4lxHW1HGZD0?si=HdIKzqdePkvbZcGy
+受訪的影片
+ジロッケン#66後編/ ニトロデイ
+環七フィーバーズNEO
+
+
+---
+
 https://youtu.be/Z5VnxM-W9-0?si=atuTNfnvpj_ZwmVm
 
 去聽完www之後在附近吃了春日庭，油麵超好吃
 
+___
+
 https://youtu.be/bI6-z5Xwxpk?si=9NadeMamL3Ayam-N
 
-我找到很久以前有人po過的了XD！（
+我找到很久以前有人po過的了
 
-NITRO記錄
-ニトロデイ
+這張後來沒有放在網路上，是當年她自己的作品之一
 
-as i remember
 
 我記得我找過NITRODAY大概最早期的影片們，他們一開始是高中（記得是橫濱的）組成，然後參加表演得名
 
-https://youtu.be/XP6HsZQ9d_s?si=wKIbuvoi357vKrWo
-
-https://youtu.be/_3rVMOuGGno?si=Tb2g-FVeO3MbX__8
-這一部好像不是原檔
-
-關鍵字下：ニトロデイ比較好找，然後有一些是其他熱音社cover他們（哇是別人cover的對象了
-
-https://youtu.be/4lxHW1HGZD0?si=HdIKzqdePkvbZcGy
-受訪的影片
 
 
 https://youtu.be/5--OKSWe-YY?si=1HWgzWYfwm7pZ-W5
