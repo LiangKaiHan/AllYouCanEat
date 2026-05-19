@@ -19,28 +19,52 @@ art-school is coming to Taiwan.
 
 The point is yagihiromi.
 
+***
 
 ART-SCHOOL當然不需要我這種咖小介紹，我幫補充一環，右下坐著的是彈吉他的年輕的yagihiromi，她是樂團NITRODAY的吉他手。NITRODAY現在沒有在活動了，當年高中生成團做出了很屌的音樂——我在Spotify聽到覺得：
 
+ART-SCHOOL obviously doesn’t need an introduction from a nobody like me, but I’ll fill in one missing piece: sitting down there on the lower right is the young guitarist yagihiromi. She was the guitarist for the band NITRODAY. NITRODAY isn’t active anymore. Back then, as high schoolers, they made some seriously badass music. When I first heard them on Spotify, my reaction was:
+
 喔喔幹這個節奏好
+
+Whoa, fuck, this groove is good.
 
 喔喔幹主唱唱歌好難聽他被殺喔
 
+Whoa, fuck, the singer sounds so bad it’s like he’s being murdered.
+
 喔喔幹可是我停不下來
+
+Whoa, fuck, but I can’t stop listening.
 
 四個人，超棒的組合
 
+Four people. An insanely perfect combination.
+
 我超愛他們然後影片裡吉他手彈琴的姿勢超棒根本就是用身體在彈琴
+
+I fell hard for the and the guitarist’s posture in the videos absolutely killer She wasn’t just playing the guitar she was playing it with her whole body.
 
 我很喜歡所以有私訊幾次
 
+I liked it so much I messaged her a few times.
+
 一次她用（顯然比我好很多）英文跟我說希望我有機會看他們現場。（當然是某種日本意思的轉換
+
+Once she replied in English (clearly way better than mine) saying she hoped I’d get the chance to see them live someday. (sure that polite Japanese way of saying it.)
 
 我看了一下NITRODAY的行程突然重擊了一下，下下週在渋谷；我過年有一張去東京的機票，還是，我就⋯⋯
 
+I checked their schedule and got hit hard—they were playing Shibuya in two weeks. I already had a ticket to Tokyo for Chinese New Year. So… yeah.
+
 兩個禮拜後我在yagihiromi的正前方看她彈吉他🤗
 
+Two weeks later I was standing right in front of yagihiromi, watching her play guitar. 🤗
+
 11月的東京，連日細雨，鞋子濕了但可以一直走下去。後來NITRODAY沒活動大家有自己的活動的樣子，yagihiromi多做自己的吉他創作，在NITRODAY她是不唱歌的，唱歌的是魔性的殺雞主一直搖她那一大根（搖座，謝謝）是她後來多年來常有的樣子：翹著腳坐在某處的椅子上，滿地效果器，不說話吧，然後就用身體談起吉他。這是我常在她ig看到的畫面。後來也會看到她開始出現在ART-SCHOOL的活動裡，就這樣。￼
+
+November in Tokyo, constant light rain. Shoes soaked, but you can just keep walking.
+Later NITRODAY went on hiatus and everyone went their own way. yagihiromi started doing more of her own guitar work. In NITRODAY she didn’t sing; the demonic chicken-killing vocalist did that, shaking that big stand (thanks for the foot pedal, by the way). The image I often see on her IG these days: legs crossed, sitting on some chair, pedals all over the floor, not saying a word, then just letting her body talk to the guitar. That’s how it is. Later I started seeing her appear with ART-SCHOOL. And that’s that.
 
 ![NITROOOO](IMG_8635.jpg)
 
