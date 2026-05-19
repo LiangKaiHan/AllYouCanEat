@@ -114,7 +114,9 @@ This track really made me feel like, the singer is basically an **instrument**. 
 ***
 
 https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
+
 分享我的抗厭世上班播放清單：只有兩首歌幹笑死
+
 My anti-existential work playlist: just two songs.
 Fuck, I’m dying.
 
@@ -122,11 +124,17 @@ Fuck, I’m dying.
 
 這首歌的檸檬，是梶井基次郎的檸檬。
 
+The lemon in this song is Kajii Motojirō’s lemon.
+
 ***
 
 我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。
 
+I dug up some old videos, from NITRODAY, I’d watched before, they’re not official.
+
 有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。
+
+A few of the videos I remember seeing have already disappeared. I recall they formed in high school (Yokohama area, I think) and won a competition.
 
 YOUTUBE上有過比賽的影片但已經找不到了
 
