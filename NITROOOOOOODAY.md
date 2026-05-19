@@ -1,8 +1,12 @@
 這篇文章記錄art-school要來台灣，彈吉他的yagihiromi的一些事情，以及NITRODAY，beatcover!!，以及春日庭的油そば。
 
-本文跟Gork協作翻譯。馬斯克的AI一起翻，上太空的地下樂團。
+
+This post is a record of art-school coming to Taiwan, some things about yagihiromi who plays guitar, NITRODAY, beatcover!!, and the abura soba at Kasuga-tei.
+
+本文跟Gork協作翻譯。馬斯克的AI一起翻，上太空的地下樂團
 
 
+This article was collaboratively translated with Gork. Musk’s AI helping translate an underground band that’s going to space.
 
 
 ![NITROOOO](IMG_8674.JPG)
@@ -10,6 +14,11 @@
 art-school要來台灣
 
 重點是yagihiromi
+
+art-school is coming to Taiwan.
+
+The point is yagihiromi.
+
 
 ART-SCHOOL當然不需要我這種咖小介紹，我幫補充一環，右下坐著的是彈吉他的年輕的yagihiromi，她是樂團NITRODAY的吉他手。NITRODAY現在沒有在活動了，當年高中生成團做出了很屌的音樂——我在Spotify聽到覺得：
 
