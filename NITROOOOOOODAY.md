@@ -1,6 +1,6 @@
 這篇文章記錄art-school要來台灣，彈吉他的yagihiromi的一些事情，以及NITRODAY，beatcover!!，以及春日庭的油そば。
 
-本文跟Gork協作翻譯。
+本文跟Gork協作翻譯。馬斯克的AI一起翻，上太空的地下樂團。
 
 
 
