@@ -151,6 +151,8 @@ https://www.youtube.com/watch?v=tvZOGnJHbDE
 
 Just some side-angle footage of them practicing.
 
+***
+
 以下是我當時去看表演的記錄
 
 Here’s my record from when I went to see them perform.
