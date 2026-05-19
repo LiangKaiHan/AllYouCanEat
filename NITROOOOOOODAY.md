@@ -56,6 +56,10 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 ---
 
+https://youtu.be/bI6-z5Xwxpk?si=9NadeMamL3Ayam-N
+
+我找到很久以前有人po過的了XD！（
+
 NITRO記錄
 ニトロデイ
 
@@ -94,3 +98,9 @@ yagihiromi個人專輯的宣傳
 同場加映，在WWW的共演是
 
 https://www.youtube.com/watch?v=Gy63a8APe64
+
+___
+
+https://www.youtube.com/watch?v=SVNfEtu9uhA
+
+逛到覺得滿好聽的
