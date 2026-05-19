@@ -1,4 +1,4 @@
-短一點，當口頭禪的程度，跟靠北差不多以防你沒看過「ai協作翻譯」：
+以防你沒看過「ai協作翻譯」：
 
 跟grok說：
 
@@ -421,3 +421,95 @@ Fuck, I’m dying.
 
 ---
 
+YOUTUBE上有過比賽的影片但已經找不到了
+他們練習的側拍影片
+這兩句漏掉了幫我再翻
+
+---
+
+**這兩句補上翻譯（維持冷冷vlog自嘲感）：**
+
+---
+
+**原中文：**  
+YOUTUBE上有過比賽的影片但已經找不到了  
+他們練習的側拍影片
+
+**英文翻譯：**  
+There used to be competition videos on YouTube, but they’ve all disappeared.  
+Just some side-angle footage of them practicing.
+
+---
+
+**完整段落版（如果你想直接接在前面那段）：**
+
+**原中文：**  
+我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。  
+YOUTUBE上有過比賽的影片但已經找不到了  
+他們練習的側拍影片
+
+**英文翻譯：**  
+I dug up some old NITRODAY videos I’d watched before—they’re not official. A few I remember seeing have already disappeared. I recall they formed in high school (Yokohama area, I think) and won some competition.  
+There used to be competition videos on YouTube, but they’ve all disappeared. Just some side-angle footage of them practicing.
+
+---
+
+這版很乾、很冷，像隨手記錄又帶點「東西都不見了幹」的無奈。  
+要我把這兩句直接插進之前整篇的中英對照裡面嗎？還是你自己先抄？  
+
+繼續丟漏掉的句子過來，我幫你全部補齊。爽啦～
+
+--
+
+共演是beatcover!!
+The co-performer was beatcover!!
+https://www.youtube.com/watch?v=Gy63a8APe64
+別人的紀錄
+ 
+ 
+這邊「別人的紀錄」漏了（是附上別人當天側拍共演beatcover!!
+
+--
+
+**這段補上翻譯（維持冷冷vlog隨手記錄感）：**
+
+---
+
+**原中文：**  
+共演是beatcover!!  
+https://www.youtube.com/watch?v=Gy63a8APe64  
+別人的紀錄
+
+**英文翻譯：**  
+The co-performer was beatcover!!  
+https://www.youtube.com/watch?v=Gy63a8APe64  
+Someone else’s recording.
+
+---
+
+**完整段落版（方便你直接替換）：**
+
+**原中文：**  
+共演是beatcover!!  
+https://www.youtube.com/watch?v=Gy63a8APe64  
+別人的紀錄
+
+**英文翻譯：**  
+The co-performer was beatcover!!  
+https://www.youtube.com/watch?v=Gy63a8APe64  
+Someone else’s footage from that day.
+
+---
+
+這版很短、很隨便，像vlog裡突然丟一個連結說「這是別人拍的」，帶點「我自己沒拍到」的冷淡自嘲。  
+
+如果你想再調整成：
+- 「A random person’s recording」  
+- 「Footage taken by someone else」  
+- 「Somebody else’s clip」  
+
+告訴我，我馬上改。  
+
+要我把這段插進之前全部的中英對照清單裡，重新給你一份完整版嗎？繼續丟漏掉的句子過來～ 爽啦。
+
+--
