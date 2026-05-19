@@ -13,9 +13,9 @@ This article was collaboratively translated with Gork. Musk’s AI helping trans
 
 art-school要來台灣
 
-重點是yagihiromi
-
 art-school is coming to Taiwan.
+
+重點是yagihiromi
 
 The point is yagihiromi.
 
