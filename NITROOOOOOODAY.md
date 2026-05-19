@@ -161,13 +161,21 @@ Here’s my record from when I went to see them perform.
 
 2019年在東京演唱時，yagihiromi的吉他XD
 
+yagihiromi’s guitar at the 2019 Tokyo show XD
+
 這場我沒有拍她，因為我都用看的XDDDDD
+
+I didn’t film her at all during this gig. I was too busy just watching. XDDDDD
 
 ![NITROOOO](IMG_8675.JPG)
 
 入場前的排隊：
 
+Queue before entering:
+
 像小山城一樣的shibuya WWW前面，排隊排一排，他們從我旁邊走上去，yagihiromi穿著棕褐色的襯衫外套
+
+In front of Shibuya WWW, which looks like a little mountain castle, people lined up. They walked right past me on the way in. yagihiromi was wearing a brownish-tan shirt jacket.
 
 ![NITROOOO](IMG_8676.JPG)
 
@@ -177,11 +185,17 @@ Here’s my record from when I went to see them perform.
 
 共演是beatcover!!
 
+The co-performer was beatcover!!
+
 https://www.youtube.com/watch?v=Gy63a8APe64
 
 別人的紀錄
 
+Someone else’s recording.
+
 是下半場，但因為我太餓了就離場，地下室的www樓梯下方有擺攤賣周邊，NITRODAY攤位的工作人員不在，隔壁的人跟我說他馬上會回來。我只買了兩張專輯。
+
+It was the second half, but I was starving so I left early. Down in the basement under the WWW stairs there were merch stalls. The NITRODAY table guy wasn’t there; the person next to it told me he’d be right back. I only bought two albums.
 
 ![NITROOOO](IMG_8678.JPG)
 
