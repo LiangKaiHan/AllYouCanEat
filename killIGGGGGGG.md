@@ -49,7 +49,11 @@ find ~/Library/Caches -name "*instagram*" -o -name "*threads*" -o -name "*com.ap
 執行完這些後，再貼這行清垃圾桶：
 Bashrm -rf ~/.Trash/*
 
+***
+
 還是小帳
+
+***
 
 **收到！** 還是有小帳紀錄，表示有些深層的 Website Data 或 Containers 資料沒被完全清除（Safari 有時會把 IG 資料藏在 Containers 資料夾裡）。別擔心，我們來更徹底的清理。
 
