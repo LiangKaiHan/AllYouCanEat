@@ -104,3 +104,7 @@ ___
 https://www.youtube.com/watch?v=SVNfEtu9uhA
 
 逛到覺得滿好聽的
+
+https://www.youtube.com/watch?v=-vc7QHv9U_E
+
+我找到這個，很好笑，以前看的，簡單魔改金盞花
