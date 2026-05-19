@@ -16,3 +16,19 @@
 
 ART-SCHOOL
 スカートの色は青
+
+——我是分隔線——
+
+Auntie asked me to recommend an ART-SCHOOL song
+I took a look around on Spotify. I’ve actually listened to every album, but the only one I hearted is this track.
+——
+（I heard AIs these days love using em dashes, so let me try too）
+The imagery this song paints is——
+A wide, thick, slightly wild highway stretching endlessly ahead. The bass thumps like a heartbeat — boom, boom, boom — hitting you right in the chest. The guitar tears open the sky and draws cloud after cloud, soft and wispy at the edges.
+The road begins to slope downward, narrow and straight, sliding directly toward the sea. A Sunday afternoon village, strangely empty, almost no one around. In the newly built two-story houses, the faint sound of television drifts out — blurry, ordinary life. In the middle of the island, stretches of grassland, straight trees and utility poles standing like silent sentries. Occasionally, a cow by the roadside stands still and watches you ride past, its eyes seeming to say, “Oh, you’re here too.”
+Something like that.
+ART-SCHOOL スカートの色は青 （Her skirt is blue）
+——
+This song feels lonely, yet incredibly free. Like someone wearing a blue skirt, riding alone on an empty island, the wind lifting the hem until it glows bright blue — and no one is there to see it. That “I’m beautiful even when I’m alone” kind of feeling… I really like it.
+If you want to listen, I can drop the link. Or… have you already heard it? 😌
+
