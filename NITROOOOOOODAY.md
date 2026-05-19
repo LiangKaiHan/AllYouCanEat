@@ -2,7 +2,7 @@ art-school要來台灣
 
 重點是yagihiromi
 
-天！我現在才知道這個，ART-SCHOOL當然不需要我這種咖小介紹，我幫補充一環，右下坐著的是彈吉他的年輕的yagihiromi，她是樂團NITRODAY的吉他手。NITRODAY現在沒有在活動了，當年高中生成團做出了很屌的音樂——我在Spotify聽到覺得：
+ART-SCHOOL當然不需要我這種咖小介紹，我幫補充一環，右下坐著的是彈吉他的年輕的yagihiromi，她是樂團NITRODAY的吉他手。NITRODAY現在沒有在活動了，當年高中生成團做出了很屌的音樂——我在Spotify聽到覺得：
 
 喔喔幹這個節奏好
 
@@ -64,13 +64,30 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 這首歌的檸檬，是梶井基次郎的檸檬。
 
+***
+
+我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。
+
+有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。
+
+YOUTUBE上有過比賽的影片但已經找不到了
+
+
+https://youtu.be/5--OKSWe-YY?si=1HWgzWYfwm7pZ-W5
+https://www.youtube.com/watch?v=iG0-saJV5AI
+https://www.youtube.com/watch?v=tvZOGnJHbDE
+
+他們練習的側拍影片
+
+以下是我當時去看表演的記錄
+
 ---
 
 ![NITROOOO](IMG_8647.jpg)
 
 2019年在東京演唱時，yagihiromi的吉他XD
 
-這場我沒有拍她，因為我都用看的
+這場我沒有拍她，因為我都用看的XDDDDD
 
 ![NITROOOO](IMG_8645.jpg)
 
@@ -88,6 +105,8 @@ https://open.spotify.com/playlist/45G7hlZRf0c1jCdvup6Dcq?si
 
 https://www.youtube.com/watch?v=Gy63a8APe64
 
+別人的紀錄
+
 是下半場，但因為我太餓了就離場，地下室的www樓梯下方有擺攤賣周邊，NITRODAY攤位的工作人員不在，隔壁的人跟我說他馬上會回來。我只買了兩張專輯。
 
 ![NITROOOO](IMG_8678.jpg)
@@ -104,6 +123,9 @@ https://www.youtube.com/watch?v=Gy63a8APe64
 
 ![NITROOOO](IMG_8681.jpg)
 
+https://youtu.be/Z5VnxM-W9-0?si=atuTNfnvpj_ZwmVm
+
+別人的影片記錄
 
 ### as i remembered
 
@@ -126,56 +148,17 @@ https://youtu.be/4lxHW1HGZD0?si=HdIKzqdePkvbZcGy
 環七フィーバーズNEO
 
 
----
-
-https://youtu.be/Z5VnxM-W9-0?si=atuTNfnvpj_ZwmVm
-
-去聽完www之後在附近吃了春日庭，油麵超好吃
-
-___
-
-https://youtu.be/bI6-z5Xwxpk?si=9NadeMamL3Ayam-N
-
-我找到很久以前有人po過的了
-
-這張後來沒有放在網路上，是當年她自己的作品之一
 
 
 
 
 
 
-https://youtu.be/5--OKSWe-YY?si=1HWgzWYfwm7pZ-W5
-https://www.youtube.com/watch?v=iG0-saJV5AI
-https://www.youtube.com/watch?v=tvZOGnJHbDE
-
-側拍
 
 ---
-
-https://youtu.be/Tx9Z9-Mr_0E?si=B_Zro84mWQInouOe
-yagihiromi個人專輯的宣傳
 
 阿她另一個團是cruyff
 
-
 ---
 
 
-同場加映，在WWW的共演是
-
-https://www.youtube.com/watch?v=Gy63a8APe64
-
-___
-
-https://www.youtube.com/watch?v=SVNfEtu9uhA
-
-逛到覺得滿好聽的
-
-https://www.youtube.com/watch?v=-vc7QHv9U_E
-
-我找到這個，很好笑，以前看的，簡單魔改金盞花
-
-還有懷念一下過往
-
-https://youtu.be/FYd5RXp9jqs?si=o8A6n9OmP9lqDp25
