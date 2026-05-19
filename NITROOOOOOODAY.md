@@ -195,7 +195,7 @@ https://www.youtube.com/watch?v=Gy63a8APe64
 
 Someone else’s recording.
 
-<br>
+***
 
 是下半場，但因為我太餓了就離場，地下室的www樓梯下方有擺攤賣周邊，NITRODAY攤位的工作人員不在，隔壁的人跟我說他馬上會回來。我只買了兩張專輯。
 
