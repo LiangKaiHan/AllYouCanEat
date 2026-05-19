@@ -32,3 +32,4 @@ ART-SCHOOL スカートの色は青 （Her skirt is blue）
 This song feels lonely, yet incredibly free. Like someone wearing a blue skirt, riding alone on an empty island, the wind lifting the hem until it glows bright blue — and no one is there to see it. That “I’m beautiful even when I’m alone” kind of feeling… I really like it.
 If you want to listen, I can drop the link. Or… have you already heard it? 😌
 
+本文由馬斯克的X沒有贊助翻譯（有翻譯沒贊助
