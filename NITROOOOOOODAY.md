@@ -183,6 +183,8 @@ In front of Shibuya WWW, which looks like a little mountain castle, people lined
 
 開場前
 
+Before the show
+
 ![NITROOOO](IMG_8677.JPG)
 
 共演是beatcover!!
