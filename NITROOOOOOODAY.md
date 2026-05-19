@@ -138,14 +138,22 @@ A few of the videos I remember seeing have already disappeared. I recall they fo
 
 YOUTUBE上有過比賽的影片但已經找不到了
 
+There used to be competition videos on YouTube, but they’ve all disappeared.
+
 
 https://youtu.be/5--OKSWe-YY?si=1HWgzWYfwm7pZ-W5
+
 https://www.youtube.com/watch?v=iG0-saJV5AI
+
 https://www.youtube.com/watch?v=tvZOGnJHbDE
 
 他們練習的側拍影片
 
+Just some side-angle footage of them practicing.
+
 以下是我當時去看表演的記錄
+
+Here’s my record from when I went to see them perform.
 
 ---
 
