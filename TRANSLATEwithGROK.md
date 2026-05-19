@@ -655,3 +655,45 @@ When looking for their early videos, I’ve seen them.
 「受訪的影片」
 
 ---
+
+**最後一個補上（維持冷冷vlog隨手記錄感）：**
+
+---
+
+**原中文：**  
+受訪的影片
+
+**英文翻譯（推薦版）：**  
+Interview footage.
+
+---
+
+**更完整一點的版本（如果前面有接脈絡）：**  
+There’s also some interview footage.
+
+---
+
+**如果要接在早期影片那段的完整段落：**
+
+**原中文：**  
+我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。  
+YOUTUBE上有過比賽的影片但已經找不到了  
+他們練習的側拍影片  
+想找他們早期影片，我有看過  
+受訪的影片
+
+**英文翻譯：**  
+I dug up some old NITRODAY videos I’d watched before—they’re not official. A few I remember seeing have already disappeared. I recall they formed in high school (Yokohama area, I think) and won some competition.  
+There used to be competition videos on YouTube, but they’ve all disappeared. Just some side-angle footage of them practicing.  
+When looking for their early videos, I’ve seen them.  
+Interview footage.
+
+---
+
+這版乾乾的、很短，像vlog隨口列清單一樣，冷冷帶過。
+
+---
+
+**爽啦～ 現在全部補齊了！**  
+需要我把**目前為止整篇中英對照**一次整理成乾淨的完整版本給你嗎？（從開頭到結尾）  
+直接說「給我完整版」我就一次貼上，讓你好複製確認。
