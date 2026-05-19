@@ -607,3 +607,51 @@ Looking for their early stuff — yeah, I’ve seen those.
 
 ---
 
+但意思有點像是「我有看過的」（書面體）加上這種口語，我覺得沒有那個yeah
+
+---
+
+**這句調整後翻譯（去掉 yeah，帶一點書面「我有看過的」感覺，同時保留口語冷冷隨便的vlog感）：**
+
+---
+
+**原中文：**  
+想找他們早期影片，我有看過
+
+**英文翻譯（推薦版）：**  
+When looking for their early videos, I’ve seen them.
+
+---
+
+**另一個更書面一點的版本：**  
+I have seen their early videos.
+
+---
+
+**完整段落版（直接替換用）：**
+
+**原中文：**  
+我找一些我當年有看過的、NITRODAY的影片，不是他們官方的。有幾部我看過已經不見了。我記得他們是高中組成的團，橫濱的樣子，參加比賽得了獎。  
+YOUTUBE上有過比賽的影片但已經找不到了  
+他們練習的側拍影片  
+想找他們早期影片，我有看過
+
+**英文翻譯：**  
+I dug up some old NITRODAY videos I’d watched before—they’re not official. A few I remember seeing have already disappeared. I recall they formed in high school (Yokohama area, I think) and won some competition.  
+There used to be competition videos on YouTube, but they’ve all disappeared. Just some side-angle footage of them practicing.  
+When looking for their early videos, I’ve seen them.
+
+---
+
+這版「I’ve seen them」帶有書面「我有看過」的乾淨感，但放在句子裡又很自然像隨口講出來，冷冷的，不刻意熱情。  
+
+如果你還想再調整（更書面 / 更口語 / 再短一點），直接說，我立刻改。  
+
+要我現在把**整篇目前為止的所有中英對照**重新整理一次給你嗎？這樣你就可以一次確認全部。爽啦～
+
+---
+
+屋阿阿阿阿阿阿阿阿最後一個
+「受訪的影片」
+
+---
