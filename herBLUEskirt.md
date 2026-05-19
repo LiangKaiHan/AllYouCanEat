@@ -43,9 +43,6 @@ I took a look around on Spotify. I’ve actually listened to every album, but 
 
 ——大概是這樣的畫面
 
-ART-SCHOOL
-
-スカートの色は青
 
 （I heard AIs these days love using em dashes, so let me try too）
 
