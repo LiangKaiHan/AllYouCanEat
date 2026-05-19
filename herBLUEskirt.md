@@ -1,4 +1,9 @@
 ![herBLUEsky](ComfyUI_01025_.png)
+photorealistic, 3d, detailed texture, complex shading, realistic lighting, portrait, close-up, text, watermark, blurry, low quality, deformed, extra limbs, bad anatomy, crowded scene, people, cars, heavy details, painterly, oil painting
+
+nlxl
+steps28, cfg2.5,2sa, beta57,
+
 
 嬸嬸要我推薦ART-SCHOOL的歌
 我看了一下spotify
