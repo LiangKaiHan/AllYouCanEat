@@ -427,6 +427,10 @@ Q.E.D.
 
 就像是阿強和烏鴉在海邊的卡夫卡的B級精選
 
+https://open.spotify.com/album/6Y6hccWm1w4Y5xU7yjVgMm?si=PoZr8eqfRFak53BaEQYnkQ
 
+我真的可以帶機械鍵盤去，青軸的，不然現在的年輕人，都不知道「在辦公室用青軸鍵盤」是什麼梗了
+
+讚喔喝tequilla倒立
 
 邱懋警的空格
