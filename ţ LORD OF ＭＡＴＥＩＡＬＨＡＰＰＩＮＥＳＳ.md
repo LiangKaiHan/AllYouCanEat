@@ -94,7 +94,7 @@ https://open.spotify.com/artist/6sAONleCsmAyP87OHsVAPV?si=wwQCOl8vSGWlLT_Fce8Lrg
 
 「**金星**」
 
-![金星]()
+![金星](IMG_8974.jpg)
 
 對那兩個字是金星
 
@@ -277,3 +277,6 @@ AI協作，寫不，出來ㄓ
 醉詠新詩添逸興貴人引接上雲衢
 
 蘇秦 抵 掌  華 屋
+
+以防大家沒看過不是業配的正常人在網路上寫的文章，我們那個年代很多這種的
+Q.E.D.
