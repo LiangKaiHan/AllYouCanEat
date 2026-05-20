@@ -38,6 +38,8 @@ https://open.spotify.com/artist/6sAONleCsmAyP87OHsVAPV?si=wwQCOl8vSGWlLT_Fce8Lrg
 
 今天台北嘉興地區宮廟故事：
 
+（這裡只是嘉興街而已謝謝）
+
 「你一直丟祂就沒有要給你啊」
 
 「呃」
