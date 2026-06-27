@@ -23,3 +23,11 @@ he
 
 must love too much,
 
+AND you know that already
+
+can;t you hear ?
+
+ＹＡＧＩ
+
+ther are all his love letter to you
+
